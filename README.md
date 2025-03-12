@@ -1,0 +1,1 @@
+# Parcial-LyP-Geilygomez-corte1
